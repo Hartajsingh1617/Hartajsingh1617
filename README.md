@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Hartajsingh1617
+- 👀 I’m interested in coding
+- Branch CSE
+- Section :C
+- Registration no. :24103044
+- My excel certificate :
+- 
