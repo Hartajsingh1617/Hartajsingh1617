@@ -19,3 +19,4 @@
 -DAY 3
 -On the third day of induction program we firsity intereacted with DR.
 -RANDHIR SINGH who instructed us about the github app and helped us to create github accounts. After him we listened to presitigous thoughts of Dr. PYARE LAL. Then MR. SONY GOYAL motivated us to be sucessfull in life. At last MR.PANCHAM delivered us beautiful message.
+
