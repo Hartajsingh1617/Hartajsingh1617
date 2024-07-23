@@ -32,9 +32,11 @@
 
 - Day 6
 - On the sixth day of our induction program we first attended the PEER INTERACTION ABOUT COLLEGE in the morning.They taught us about college life and some about exams,result etc. In the afternoon, DR.HARWINDER SINGH motivated us to join NCC(NATIONAL CADET CORPS).Then Er.JASVIR SINGH GREWAL coordinator of NSS motivated us to join NSS. It was a nice day as we saw our campus more deeply.
-- ![IMG_2806](https://github.com/user-attachments/assets/a0661f12-994e-4dda-a161-a37a321e0668)
+- ![IMG_2806](https://github.com/user-attachments/assets/78a39983-8862-46c5-bb30-f0d307bc2dcb)
+
 
 - Day 7
 - On the seventh day of our introduction program we firstly intereacted with Er. kanwardeep Kalra in the auditorium. she introduced us with the various factors that matters the most when we are headed to an interview or for placement in a company. Then JASWINDER SINGH helped us to clear some basic science concepts with ease and in a fun way. I wan indeed the happiest person in the auditorium as i was invited by him on the stage. He also awrded me a pencil as an award. He told me that he was completely impressed with my knowledge and intelligence. I wan indeed happy to listen this words from a well respected person of our society.
-![IMG_2807](https://github.com/user-attachments/assets/2a8afa27-d864-4599-a769-029bc8d2fc07)
-![IMG_2808](https://github.com/user-attachments/assets/e8fec7fd-6641-4879-8b7e-fce29caa9c3c)
+![IMG_2808](https://github.com/user-attachments/assets/d1e700b1-03d4-4192-8da1-682a36363730)
+![IMG_2807](https://github.com/user-attachments/assets/ccd2ec48-fbf5-4ad3-b30f-53eeeb41e5e8)
+
